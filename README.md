@@ -1,1 +1,1 @@
-Hlo, just tryna get by 😊
+Hlo, just tryna get by 😊 Have a good time!
